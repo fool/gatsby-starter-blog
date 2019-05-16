@@ -1,11 +1,11 @@
 module.exports = {
   siteMetadata: {
-    title: `Gatsby Starter Blog`,
-    author: `Kyle Mathews`,
-    description: `A starter blog demonstrating what Gatsby can do.`,
-    siteUrl: `https://gatsby-starter-blog-demo.netlify.com/`,
+    title: `Biking the Pacific Coast Part 1`,
+    author: `Chris McCraw`,
+    description: `words and (links to) pictures`
+    siteUrl: `https://bestcoast-part1.netlify.com/`,
     social: {
-      twitter: `kylemathews`,
+      twitter: `fool`,
     },
   },
   plugins: [
@@ -57,8 +57,8 @@ module.exports = {
     {
       resolve: `gatsby-plugin-manifest`,
       options: {
-        name: `Gatsby Starter Blog`,
-        short_name: `GatsbyJS`,
+        name: `Biking the Pacific Coast Part 1`,
+        short_name: `bestcoast-part1`,
         start_url: `/`,
         background_color: `#ffffff`,
         theme_color: `#663399`,
