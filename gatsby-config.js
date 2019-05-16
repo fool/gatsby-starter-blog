@@ -2,7 +2,7 @@ module.exports = {
   siteMetadata: {
     title: `Biking the Pacific Coast Part 1`,
     author: `Chris McCraw`,
-    description: `words and (links to) pictures`
+    description: `words and (links to) pictures`,
     siteUrl: `https://bestcoast-part1.netlify.com/`,
     social: {
       twitter: `fool`,
