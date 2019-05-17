@@ -6,7 +6,7 @@ description: "USA! USA!"
 
 ### Milepost 4 
 
-I feel like a spoiled brat.  Sitting in business class on Amtak means you get to detrain first which made the customs wait...nonexistent.  Anant was awesome and came to pick me up instead of having me ride to his place, ~10mi.  "There's quite a slope at the end..." and it was sprinkling.  (Narrator:  *there turned out to be several slopes!*)
+I feel like a spoiled brat.  Sitting in business class on Amtak means you get to detrain first which made the customs wait...nonexistent.  Anant was awesome and came to pick me up instead of having me ride to his place, ~10mi.  "There's quite a slope at the end..." and it was sprinkling.  (Narrator:  *there turned out to be several slopes!*)  It was basically a very deluxe landing that could have been gross if I had to look for a hotel at 11pm (vancouver does not seem to be a late night town), and lock my bike outside and and and.  Anyway, yay!
 
 Anant was quite curious about the logistics of my trip.  He asked a bunch of things that might be of general interest, so since I have a comfortable place to sit and type, I'll recount a few:
 
