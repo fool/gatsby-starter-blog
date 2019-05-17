@@ -62,7 +62,9 @@ Anant was right - there was a slope.  I ended up accidentally speeding downhill 
 Didn't remember to add the 10mi from Anant's house back to central city into my mileage plans, so today was a bit long at 63 miles.  Tiring but promising (I seem to be in reasonable shape for doing basically 0 training and just relying on my cardio fitness and occasional mountain bike rides with Lori) start to the trip!  
 
 <img src=/pictures/16may/northvancouverpano.jpg>
-(*today I learned that I need to take Some Care while making panoramas if I want them to look any good.*)
+
+<center><i>(Today I learned that I need to take Some Care while making panoramas if I want them to look any good.)</i></center>
+
 
 The heavy bike makes climbing hills hard.  The biggest uphills were bridges until I made it fairly far south of Vancouver.  I walked a few stretches, usually in the 1 to 4 block range.  Usually on the sidewalk but also in a dead-end culdesac that connected to an MIP.  One was long enough that I took a few breaks going up.  Lucky thing there was a sidewalk as there hadn't been one (or even a shoulder) on the road for approx 8 miles before then, which was the worst stretch to ride on today as far as car traffic.  The second worst stretch was into the campground since it was 5pm by that point, but I was also tired and hungry so maybe I felt worse than it did, not sure.
 
@@ -75,7 +77,7 @@ I forgot Canada has cool bike infrastructure! I miss it already.  Some of the th
 - copious well signed bike routes.  I once switched from one to another one that was 2 blocks to the left.  Accidentally used a connecting bike route, though it was just the street when I realized I'd missed the intended turn, also on a bike route, 1 block before.  Overall, BC seems to believe in frequent well-signed bike routes (EVERY corner has a bike on the street sign, there are frequent route markers with names, though not as awesome as Portland's "mileage to destinations xyz" signs).  Oh, and diverters on the routes I rode at **major** streets instead of minor ones like Portland does.  Like, I probably went through 12 in the ~100 blocks on that one bike route across Richmond from East to West.
 	
 <img src=/pictures/16may/trafficcalmed.jpg>
-<center>(*also, I want to live in a traffic calmed area*)</center>
+<center><i>also, I want to live in a traffic calmed area</i></center>
 
 I bonked on an uphill that was rideable but long and making me cranky in Surrey, BC.  I saw a Little Caesars pizza shop and it sounded good but it was not good.  I ate it and carried on but the root beer was the best part of that lunch.  I was SERIOUSLY kicking myself as I went through south Surrey, which featured many men in turbans walking and biking about and the lunch place smells were AMAZING and I just wasn't hungry after the bad breadsticks, and I REALLY wish I'd held out for 3 miles.  But since I hadn't looked at the map, I wasn't sure there would be ANYTING in 3 miles.  It was fairly populated until about mile 40 and then turned into farmland for the last 15 in Canada with occasional neighborhoods (like the odd hill I walked up - TONS of development, 15 miles from any town AFAICT, so it had the first sidewalk in a long time! thank goodness.  It would have been miserable to push up the gravel shoulder or in the drainage ditch of the preceding miles.)
 
