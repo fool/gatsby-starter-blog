@@ -7,7 +7,7 @@ description: "Short and Sandwichy"
 
 ### Milepost 96 
 
-It had been a rainy night in camp, but my tent stayed dry despite being pitched poorly, as i discovered when breaking it down in the morning and finding a puddle on the ground cloth underneath where I slept.  Drying the tent pieces most of the way took about 2 hours in the cloudy still air.  But I got to spend it in the trees, and I like being in the trees (more than the coast, about on par with the mountains in my "spiritual nature experiences" rankings), so it wasn't bad.  
+It had been a rainy night in camp, but my tent stayed dry inside, despite being pitched poorly (as I discovered when breaking it down in the morning and finding a puddle on the ground cloth underneath where I slept).  Drying the tent pieces most of the way took about 2 hours in the cloudy still air.  But I got to spend it in the trees, and I like being in the trees (more than the coast, about on par with the mountains in my "spiritual nature experiences" rankings), so it wasn't bad.  
 
 <img src=/pictures/17may/camp-trees.jpg>
 
@@ -40,3 +40,6 @@ It didn't turn out to be filling, so as I walked around downtown Bellingham wait
 <img src="/pictures/17may/bham-pano.jpg">
 
 Tomorrow I haven't figured out where I'll go, yet.  There's plenty of commerce and camping to the south though, so it should be fine.
+
+#### [Photo album of those pictures at full res plug a few more](https://photos.app.goo.gl/QKXf3tmxpW1FhfbR6)
+
