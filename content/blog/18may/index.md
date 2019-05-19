@@ -8,12 +8,15 @@ description: "onwards and uphill"
 ### Milepost 158
 
 slept well / in the hotel / in bellingham
+
 wondered about eating Continental breakfast but rolling on Schwalbe tires.
+
 <img src=/pictures/18may/pecanmountain.jpg>
 *(Not included in continental breakfast)*
 
 
 was passed by several groups of randonneurs who are riding to Eugene from Vancouver BC in 3 days.  That's likely as far as I'll ride in 2 weeks.
+
 got great guidance from a friendly local to find today's hidden trail near anacortes; he saved me a mile of miserable freeway.
 <img src=/pictures/18may/chuckanut.jpg>
 
@@ -41,6 +44,8 @@ pulling up to the campground 30 seconds after other cyclists after passing 2 "ca
 <img src=/pictures/18may/scenic-battery.jpg>
 
 hot sauce made dinner palatable: snacks from my bag + cheese.  I had a delicious and huge late lunch and so snack-ish dinner was perfect.
+
+
 spent some pensive time standing (my butt is tired) facing the waves on the bluff.  I'm sure it makes sense that you crave additional meditative opportunities when you spend much of your day meditating.
 <img src=/pictures/18may/bluff-pano.jpg>
 
