@@ -29,11 +29,12 @@ traffic jam at deception pass meant no shoulder = no problem.  These two picture
 <img src=/pictures/18may/deceptionselfie.jpg>
 <img src=/pictures/18may/otherbluffpano.jpg>
 
+today was super duper hilly.  I wobbled up at least 3 hills I would have walked on thursday.  feeling strong and exhausted! 
 
 received two unsolicited encouragements:
 - graffiti at the top of the steepest, longest hill, in the bike lane:  "Shut Up Legs!!"
 - random roadie who passed me while I was pulled over to let some traffic past on a shoulderless section: "Don't give up, it's worth it!" (it was, in fact, worth it.)
-today was super duper hilly.  I wobbled up at least 3 hills I would have walked on thursday.  feeling strong and exhausted! 
+
 
 <img src=/pictures/18may/bombsaway.jpg>
 *(Nothing says welcome like weapons!)*
