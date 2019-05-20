@@ -14,6 +14,7 @@ wondered about eating Continental breakfast but rolling on Schwalbe tires.
 <img src=/pictures/18may/pecanmountain.jpg>
 *(Not included in continental breakfast)*
 
+<p>
 
 was passed by several groups of randonneurs who are riding to Eugene from Vancouver BC in 3 days.  That's likely as far as I'll ride in 2 weeks.
 
