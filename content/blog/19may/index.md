@@ -1,7 +1,7 @@
 ---
 title: May 19th
 date: "2019-05-19T18:12:03.284Z"
-description: "over the water and through the woods
+description: "over the water and through the woods"
 ---
 
 ### Milepost 205
