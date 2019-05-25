@@ -1,6 +1,6 @@
 ---
-title: May 234d
-date: "2019-05-23T23:45:03.284Z"
+title: May 24th
+date: "2019-05-24T23:45:03.284Z"
 description: "in oregon-again, via boat!"
 ---
 
