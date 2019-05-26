@@ -12,11 +12,11 @@ Was back at the apartment, getting finished with packing when Nell's sister came
 
 <img src=/pictures/25may/bridge.jpg>
 
-Left Astoria via an odd "back way" (Business 101) that took me across some shorter, low traffic bridges instead of the epic one or the less epic but still long one.  I haven't ever ridden over the huge bridge in the picture, and it seems to have a decent "way" for bikes on it according to google maps, so maybe in the future.  Or, not...I think the route I'm taking avoids it intentionally since sometimes what's "designed" for bikers is still pretty unpleasant and I think this route has been designed very intentionally, and carefully routed around some unfortunate infrastructure (I am thinking especially of some places in British Columbia).
+Left Astoria via an odd "back way" (Business 101) that took me across some shorter, low traffic bridges instead of the epic one or the less epic but still long one.  I haven't ever ridden over the huge bridge in the picture, and it seems to have a decent "way" for bikes on it according to google maps, so maybe in the future.  Or, not...I think the [route I'm taking](https://www.adventurecycling.org/routes-and-maps/adventure-cycling-route-network/pacific-coast/) avoids it intentionally since sometimes what's "designed" for bikers is still pretty unpleasant and I think [this route](https://www.adventurecycling.org/routes-and-maps/adventure-cycling-route-network/pacific-coast/) has been designed very intentionally, and carefully routed around some unfortunate infrastructure (I am thinking especially of some places in British Columbia).
 
 The morning was pretty good - back road, still mostly dry, with 1 out of 4 epic climbs completed just before lunch.
 
-Stopped at the Lewis & Clark national historic...thing, and it was really interesting!  I didn't actually know much about the expedition but I learned a ton and the park was pretty and it was where they camped for the winter of 1806...I hadn't even understood somehow it was a multi-year undertaking!
+Stopped at the Lewis & Clark national historic...park thing (called "Fort Clatsop"), and it was really interesting!  I didn't actually know much about the expedition but I learned a ton and the park was pretty and it was where they camped for the winter of 1806...I hadn't even understood somehow it was a multi-year undertaking!
 
 <img src=/pictures/25may/terminology.jpg>
 *(also I learned that the terminology for last-century logging practices is pretty funny)*
