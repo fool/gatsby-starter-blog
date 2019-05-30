@@ -7,16 +7,16 @@ description: "onwards and uphill"
 
 ### Milepost 158
 
-slept well / in the hotel / in bellingham
+Slept well / in the hotel / in bellingham
 
-wondered about eating Continental breakfast / yet rolling on Schwalbe tires.
+Wondered about eating Continental breakfast / yet rolling on Schwalbe tires.
 
 <img src=/pictures/18may/pecanmountain.jpg>
-(*Not included in continental breakfast*)
+(<i>Not included in continental breakfast</i>)
 
 <p>
 
-was passed by several groups of randonneurs who are riding to Eugene from Vancouver BC in 3 days.  That's likely as far as I'll ride in 2 weeks!
+Was passed by several groups of randonneurs who are riding to Eugene from Vancouver BC in 3 days.  That's likely as far as I'll ride in 2 weeks!
 
 Got great guidance from a friendly local to find today's hidden trail near anacortes; he saved me a mile of miserable freeway.
 <img src=/pictures/18may/chuckanut.jpg>
@@ -38,7 +38,7 @@ received two unsolicited encouragements:
 
 
 <img src=/pictures/18may/bombsaway.jpg>
-(*Nothing says welcome like weapons!*)
+(<i>Nothing says welcome like weapons!</i>)
 
 Pulling up to the campground 30 seconds after other cyclists after passing 2 "campground full" signs was slightly stressful, especially since the campground was down a big hill and legs were exhausted.  Then becoming friendly neighbors in some great hiker/biker sites at an otherwise full-go-away-motorists campground with a toasty shower.
 
@@ -49,4 +49,4 @@ Hot sauce made dinner palatable: snacks from my bag + cheese.  I had a delicious
 Spent some pensive time standing (my butt is tired) facing the waves on the bluff.  I'm sure it makes sense that you crave additional meditative opportunities when you spend much of your day meditating.
 <img src=/pictures/18may/bluff-pano.jpg>
 
-#### [Photo album of those pictures at full res plug a few more](https://photos.app.goo.gl/HfGq1jXe2JXa7Bg37)
+#### [Photo album of those pictures at full res plus a few more](https://photos.app.goo.gl/HfGq1jXe2JXa7Bg37)

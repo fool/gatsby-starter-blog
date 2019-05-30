@@ -84,4 +84,4 @@ Customs was weird.  I almost just walked across the border without talking to an
 
 I ended up at a pretty campground at Birch Bay State Park.  Lots of trees, near the beach, pretty empty as it just opened for the season.  The lady at the nearby quickie mart was almost excessively friendly and kind but in a good way.  Made me feel less bad for not riding 4 miles back to town to eat at a restaurant.  I had a corndog, some at-least-one-day-old chicken nuggets, ice cream, beer, and aloe vera pomegranate drink.  And I feel great.  Now off to read myself to sleep.  Yes, it is 8:30pm.
 
-#### [Photo album of those pictures at full res plug a few more](https://photos.app.goo.gl/phe64vrss8Tmb5Po7)
+#### [Photo album of those pictures at full res plus a few more](https://photos.app.goo.gl/phe64vrss8Tmb5Po7)

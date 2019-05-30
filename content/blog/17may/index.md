@@ -38,5 +38,5 @@ It didn't turn out to be filling, so as I walked around downtown Bellingham wait
 
 Tomorrow I haven't figured out where I'll go, yet.  There's plenty of commerce and camping to the south though, so it should be fine.
 
-#### [Photo album of those pictures at full res plug a few more](https://photos.app.goo.gl/QKXf3tmxpW1FhfbR6)
+#### [Photo album of those pictures at full res plus a few more](https://photos.app.goo.gl/QKXf3tmxpW1FhfbR6)
 

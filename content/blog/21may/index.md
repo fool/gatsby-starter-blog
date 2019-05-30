@@ -6,7 +6,6 @@ description: "not all who wander"
 
 ### Milepost 3??
 
-
 While I'm riding, I think a lot.  It's a very meditative activity. While I do pay attention to what I'm more immediately doing since I want to be a predictable user of our shared roadways and I want to not be smushed by someone who is less predictable, I realized I was at times starting to feel and sound like the condition of the road and its other occupants was the primary fascination on this journey, and of course that isn't true.  That portion of the world gets a majority of my active attention, but it's the least remarkable thing I'm experiencing and hope to share and remember.  So, I'll see if I can write differently; with more intention to reflect on the remarkable joy of noticing that you haven't smelled humanity in miles, only nature.  And then I'll be there to remind you that much of the part of nature that is slow enough moving for us to smell, is also dead and thus smells even worse than garbage or pollution.  So, you don't want to run over that raccoon corpse if you can possibly avoid it.  (*Narrator:  he did in fact avoid it*)
 
 Today I [took more pictures](https://photos.app.goo.gl/ANkeBETr9bVEN9kY8), so that's a good start, right?

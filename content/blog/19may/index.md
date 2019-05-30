@@ -6,11 +6,11 @@ description: "over the water and through the woods"
 
 ### Milepost 205
 
-Got up early (730.  not early for work-chris, but early for "no-alarm no-work-worry chris") to use the bathroom and then decided to wake up, so was ready to roll by 9am after a quick snack.  Neighbors Neesa and Don recommended I take my time in Port Townsend so I decided to have breakfast/brunch there instead of my planned "next cafe I see".  I got to the ferry about 10:20 and the next one came at 11, so I posted yesterday's blog post while I waited.  Hadn't quite gotten photos sorted before then.
+Got up early (730.  Not early for work-chris, but early for "no-alarm no-work-worry chris") to use the bathroom and then decided to wake up, so was ready to roll by 9am after a quick snack.  Neighbors-met-yesterday Neesa and Don recommended I take my time in Port Townsend so I decided to have breakfast/brunch there instead of my planned "next cafe I see".  I got to the ferry about 10:20 and the next one came at 11, so I posted yesterday's blog post while I waited.  Hadn't quite gotten photos sorted before then.
 
 <img src=/pictures/19may/overpass.jpg>
 
-Don showed me some of their cool gear (similar tent, biofuel stove that was practically smokeless and generated (small amounts of) electricity while you cooked, and gave me a couple of strips of bacon for the road, so I could make it to Port Townsend.  The ride was pleasant but hilly again, and my legs are tired again.  They do feel better-ish after a sleep, so I'm not setting off in pain.  I'd take a rest day if that were the case!  The cruise down into the campground yesterday did lead to an immediate substantial climb out, but I chugged on through it and then proceeded with the rest of the day's climbing and descending.  So many ups and downs, much good shoulder, some missing entirely though.  No bad driver experiences today or indeed any day during the trip so far!
+Don showed me some of their cool gear (similar tent, biofuel stove that was practically smokeless and generated (small amounts of) electricity while you cooked, and gave me a couple of strips of bacon for the road, so I could make it to Port Townsend for breakfast.  The ride was pleasant but hilly again, and my legs are tired again.  They do feel better-ish after a sleep, so I'm not setting off in pain.  I'd take a rest day if that were the case!  The cruise down into the campground yesterday did lead to an immediate substantial climb out, but I chugged on through it and then proceeded with the rest of the day's climbing and descending.  So many ups and downs, much good shoulder, some missing entirely though.  No bad driver experiences today or indeed any day during the trip so far!
 
 <img src=/pictures/19may/PTdock.jpg>
 
@@ -28,5 +28,5 @@ Pulled into another state park and today had a bit better rhythm setting up camp
 
 I had thought I'd do a "short-ish" day but with the hills it felt long anyway.  I hope it gets less hilly though...I guess I shouldn't expect that it will.  I'm especially sore this evening, so for the first time this trip I both took some advil and also did some stretching.  Hopefully that will make the morning feel better.  Supposedly there is a place that serves biscuits and gravy right up the road, so breakfast may be delightful!
 
-#### [Photo album of those pictures at full res plug a few more](https://photos.app.goo.gl/R7dZrxuGcrmuh2KY6)
+#### [Photo album of those pictures at full res plus a few more](https://photos.app.goo.gl/R7dZrxuGcrmuh2KY6)
 
