@@ -7,8 +7,7 @@ description: "Short and Sandwichy"
 
 ### Milepost 96 
 
-It had been a rainy night in camp, but my tent stayed dry inside, despite being pitched poorly (as I discovered when breaking it down in the morning and finding a puddle on the ground cloth underneath where I slept).  Drying the tent pieces most of the way took about 2 hours in the cloudy still air.  But I got to spend it in the trees, and I like being in the trees (more than the coast, about on par with the mountains in my "spiritual nature experiences" rankings), so it wasn't bad.  
-
+It had been a rainy night in camp, but my tent stayed dry inside, despite being pitched poorly (as I discovered when breaking it down in the morning and finding a puddle on the ground cloth underneath where I slept).  Drying the tent pieces most of the way took about 2 hours in the cloudy, still air.  But I got to spend it in the trees, and I like being in the trees (more than the coast, about on par with the mountains in my "spiritual nature experiences" rankings), so it wasn't bad.  
 <img src=/pictures/17may/camp-trees.jpg>
 
 I grazed on snacks for breakfast; now I am carrying 3/4 pound less of snack food.  Still plenty in reserve.
@@ -17,11 +16,9 @@ I thought I might have a short riding day, and I was right.  Overall the ride wa
 
 While riding I found 3 surprise "off-road" paths to the route today that weren't on the map, and I love surprise off-road excursions!  
 
-1. First was barely visible on google maps, pointing almost straight away from the campground (which was a couple miles off the main route I'm following), pointed directly back towards the main route, so it was an easy choice.  Turned out to be land owned by BP, with a paved road through it, that was only open to pedestrians and bikes, for about 3 miles.  I saw a couple of walkers and a dog, but no real indication why BP owned the land.  There were refineries on the horizon, but it seemed like they were separated by a full public road from this huge parcel of shore-view property.  Anyway it was nice to bike on!
-2. Was on the reservation which the route skirted the edge of.  It was a well-lit by solar-powered lights well engineered MUP that went along a road that was initially otherwise empty (it ended at a casino right at the edge of the reservation).  It wound into a bit of a settled area and then my route diverged from it.  Short but much appreciated on the side of the road with no shoulders and fairly steady traffic.
-
+1. First was barely visible on google maps, pointing almost straight away from the campground (which was a couple miles off the main route I'm following), pointed directly back towards the main route, so it was an easy choice.  Turned out to be land owned by BP, with a paved road through it, that was only open to pedestrians and bikes, for about 3 miles.  I saw a couple of walkers and a dog, but no real indication why BP owned the land.  There were refineries on the horizon, but it seemed like they were separated by a full public road from this huge parcel of shore-view property.  Even without understanding why it was there, it was still quite nice to bike on!
+2. Second was on a Native reservation which the route skirted the edge of.  It was well-lit by solar-powered lights, and in general a well-engineered MUP that went along a road that was initially otherwise empty (it ended at a casino right at the edge of the reservation).  It wound into a bit of a settled area and then my route diverged from it.  Short but much appreciated on the side of the road with no shoulders and fairly steady traffic.
 <img src=/pictures/17may/rezpath.jpg>
-
 3. Was a short segment along the coast outside of Bellingham, gravel and shaded and on some empty land ending in a park where I got this picture:
 <img src=/pictures/17may/gravelpath.jpg>
 

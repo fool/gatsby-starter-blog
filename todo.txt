@@ -1,14 +1,16 @@
-themes:
+more posts:
 
-As I rode, I put a lot of thought into people who own land and homes out along the coast, the landscape of rentals and the potential for decreasign value - eroding land!
+1. themes:
 
-roads and socialism
+- As I rode, I put a lot of thought into people who own land and homes out along the coast, the landscape of rentals and the potential for decreasign value - eroding land!
+- roads and socialism
+- mental clarity
+- trust around leaving my bike less and less protected and observed
 
-clarity
-
-trust around leaving my bike
+2. wrap-up and unpacking
 
 cleanup:
 
 - editing
 - fixing markdown of picture captions italics
+- reverse order of posts after a few days
